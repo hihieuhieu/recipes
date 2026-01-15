@@ -26,11 +26,12 @@
 - Add 1/2 tsp sugar, 1/2 tsp salt, mix, let soak for 15min making it crispy
 - Squeeze to get rid of water
 - Add 5 tsp vinegar and let soak for as long as possible
+- Rinse kohlrabi and carrots to get rid of excess salt!
 - Dry the kohlrabi and carrot in a dry cloth
 - Put kohlrabi, carrot, basil, coriander, mint together
 
 ### Sauce
-- Peel, crush, cut onion. Cut chili
+- Peel, crush, cut garlic. Cut chili
 - Mix: 1 tbsp sugar, 1 tbsp lime, 1/2 tbsp vinegar, chili, garlic
 - Add 3 tsp fish sauce, 3 tsp water. Mix well
 - Taste test
