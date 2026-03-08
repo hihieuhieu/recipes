@@ -1,19 +1,21 @@
 # Ingredients
 ### Main
 #### Chicken
-- Whole chicken (Maishähnchen!!!!!!)
+- Whole chicken (Maishähnchen/Biohuhn)
 - 5 cm ginger, sliced
 - 3 cloves garlic
 - 1 stalk scallion
 - 1 tbsp salt
+- tumeric powder
 - water
 - (ice), (coriander leaves)
 
 #### Rice
-- 250 g jasmin rice
+- 250 g basmati rice
 - 1 tbsp chicken fat / oil
 - 3 cloves garlic, chopped
 - 1 tbsp ginger, grated
+- tumeric powder
 - 1/2 tsp salt
 - 2 leaves Pandan
 - 350 ml chicken broth
@@ -55,6 +57,7 @@
 - Fill pot with water covering entire chicken
 - Clean chicken skin with salt, then with running water
 - Add ginger, garlic, scallion to pot or inside chicken
+- Add salt, tumeric powder
 - Put chicken into pot with water, bring to a boil
 - Simmer chicken for 20 minutes at boiling temperature
 - Switch off stove, let chicken continue cooking for another twenty minutes
@@ -66,6 +69,7 @@
 #### Rice
 - Sauté garlic and ginger with chicken fat in a pan
 - Wash rice, add rice to pan and stir fry for a minute
+- Add tumeric powder
 - Put rice mix into rice cooker, add pandan leave
 
 #### Sauce
